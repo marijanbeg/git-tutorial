@@ -3,3 +3,4 @@
 - chill on my own
 - make dinner
 - watch Netflix
+- sleep
