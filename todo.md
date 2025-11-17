@@ -1,5 +1,5 @@
 - reply to emails
 - make coffee
 - chill with friends
-- workout
-- read a book
+- make dinner
+- watch Netflix
